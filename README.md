@@ -1,0 +1,2 @@
+# origion
+ why codes kill
